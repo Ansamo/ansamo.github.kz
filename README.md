@@ -1,1 +1,1 @@
-# ansamo.github.kz
+# ansamoo.github.io
